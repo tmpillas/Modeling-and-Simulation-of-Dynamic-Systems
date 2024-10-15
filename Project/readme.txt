@@ -1,0 +1,1 @@
+Analysis of the third question is incomplete. It should include a greater length of theoretical analysis and the task has practically not been completed. 
